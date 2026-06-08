@@ -15,4 +15,4 @@
 Qualquer dúvida entre em contato
 <a href="mailto:enzo.cece@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
-![](https://media1.tenor.com/m/k91_PDDVngsAAAAd/corinthians-gato-futebol.gif)
+![](https://media.tenor.com/vbaKQIGv3AMAAAAM/matheuzinho-corinthians.gif)
